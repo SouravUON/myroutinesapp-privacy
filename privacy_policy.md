@@ -20,8 +20,8 @@ Users can upload images from their device to use within the app. These images ar
 We may update our Privacy Policy from time to time. We will notify you of any changes by posting the new Privacy Policy on this page.
 
 ## Contact Us
-If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at support@myroutinesapp.com.
+If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at souravonline@gmail.com.
 
 ---
 
-Effective Date: [Insert Date]
+Effective Date: 26th May 2025
